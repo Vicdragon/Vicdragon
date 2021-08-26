@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Vicdragon
-- 👀 I’m interested in fnf for android
-- 🌱 I’m currently learning I don't wanna tell
-- 💞️ I’m looking to collaborate on don't wanna tell (again)
-- 📫 How to reach me NOPE
+- 👀 I’m interested in fnf lol
+- 🌱 I’m currently learning a
+- 💞️ I’m looking to collaborate on don't know
+- 📫 How to meet me:no u
 
 <!---
 Vicdragon/Vicdragon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
